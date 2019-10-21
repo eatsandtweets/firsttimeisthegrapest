@@ -1,6 +1,6 @@
-In Memoriam
+**In Memoriam**
 
-    By Louise Chandler Moulton
+*By Louise Chandler Moulton*
 
 
         As the wind at play with a spark
@@ -22,6 +22,6 @@ In Memoriam
          Into the infinite Light.
          
 
-Extra Info:
+**Extra Info:**
 This poem was written upon hearing of the death of Louisa Alcott
 http://www.public-domain-poetry.com/louise-chandler-moulton/in-memoriam-30774
